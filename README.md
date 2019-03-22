@@ -1,1 +1,0 @@
-# obastemur.github.io
